@@ -1,0 +1,1 @@
+# 3Dtisk_auto_prijimac
